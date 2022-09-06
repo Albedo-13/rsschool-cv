@@ -46,6 +46,7 @@ University education - **Belarusian State University of Informatics and Radioele
 - Gmail.com - **<prokopenya.work@gmail.com>**  
 - Github - **[github.com/Albedo-13](https://github.com/Albedo-13?tab=repositories)**  
 - LinkedIn - **[linkedin/prokopenyapavel](https://www.linkedin.com/in/prokopenyapavel/)**  
+- Discord - **[Albedo (Павел)#2684](https://discordapp.com/users/352480876229296129/)**(open with browser)  
 - Skype - **live:pavel12minsk**  
 - Phone - **+375 (29) 351-85-18**  
 
